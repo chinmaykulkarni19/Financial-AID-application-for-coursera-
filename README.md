@@ -11,3 +11,6 @@ Ans: I want to take this course as I want to learn Data Science. I want to compl
 Selected: NO
 ## 3. If you answered no, please help us understand why?
 Ans: Sir, the financial status of the family is not too good to pay the loan amount. We already have a lot of dept in the bank and my parents are paying it on regular basis. It would make their life even harder to add a new loan over them. Sir, I don’t want to put any pressure on them. Sir, it would be a great help for me to get a good job and help my family if I’m able to get this course.
+
+It takes 15 days hardly…
+You can check my video, To get a hands-on demo for how to get this financial aid approved in 15days. Thanks for supporting guys
